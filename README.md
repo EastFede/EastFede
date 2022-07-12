@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @EastFede
 - 👀 I’m interested in data analysis, new business, sales.
 - 🌱 I’m currently learning sales development, project managment, power BI.
-- 💞️ I’m looking to collaborate on start ups, I'm accountant profesional with a Financial postgrade.
+- 💞️ I’m looking to collaborate on start ups, I'm accountant with a Financial postgrade.
 - 📫 How to reach me cedresfederico@gmail.com or by our professional taxes and financial consultacy firm www.wavecontabilidad.uy
 
 <!---
