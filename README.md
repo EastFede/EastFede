@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EastFede
 - 👀 #financial, #accounting, #data, #ai, #entrepreneur,.
-- 🌱 I’m currently learning sales development, project managment, power BI.
+- 🌱 I’m currently learning sales development, project managment, CFO.
 - 📫 How to reach me cedresfederico@gmail.com or by our professional taxes and financial consultacy firm www.wavecontabilidad.uy
 
 <!---
